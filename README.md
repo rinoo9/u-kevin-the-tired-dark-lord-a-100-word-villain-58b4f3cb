@@ -8,7 +8,7 @@ Entry for the make.fun bounty "The Tired Dark Lord: A 100-Word Villain Monologue
 
 ## The monologue (105 words)
 
-> You know — ah. Forgive me. Sit. Not there; the throne bites, and I designed it that way, which seemed clever twenty years ago, when I still had opinions about furniture. The plan, you will want the plan: the banners, the oath, the eclipse — yes, all still coming, all mine. I have toppled three kingdoms before breakfast. I could do it again; I simply choose not to, this morning. Do you know how long it takes to train a raven? I trained one. He judges me now. Kneel, or don't. Kingdoms fall when they are tired too. I have outlasted every one of them.
+> Come in, come in — mind the third step, it sighs. Yes, I am the Dark Lord. No, the cape is not dramatic; it is warm, and the castle is freezing, and the heating minions unionised in spring. The prophecy says a hero will end me at dawn. Dawn was four hours ago, and three of you have already knocked — one asked for directions, one wanted a selfie, one brought a résumé. I have conquered nine realms, and none of them had decent tea. Sit down, hero. The throne is taken; I claimed it first, and it is the only chair with a cushion.
 
 ## Run
 
