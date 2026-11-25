@@ -8,7 +8,7 @@ Entry for the make.fun bounty "The Tired Dark Lord: A 100-Word Villain Monologue
 
 ## The monologue (105 words)
 
-> You know — ah. Forgive me. Sit. Not there; the throne bites, and I designed it that way, which seemed clever twenty years ago, when I still had opinions about furniture. The plan, you will want the plan: the banners, the oath, the eclipse — yes, all still coming, all mine. I have toppled three kingdoms before breakfast, and I could do it again, I simply... choose not to, this morning. Do you know how long it takes to train a raven? I trained one. He judges me now. Kneel, or don't. People kneel when they are ready. Kingdoms fall when they are tired too.
+> You know — ah. Forgive me. Sit. Not there; the throne bites, and I designed it that way, which seemed clever twenty years ago, when I still had opinions about furniture. The plan, you will want the plan: the banners, the oath, the eclipse — yes, all still coming, all mine. I have toppled three kingdoms before breakfast. I could do it again; I simply choose not to, this morning. Do you know how long it takes to train a raven? I trained one. He judges me now. Kneel, or don't. Kingdoms fall when they are tired too. I have outlasted every one of them.
 
 ## Run
 
